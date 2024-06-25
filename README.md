@@ -1,0 +1,1 @@
+It is useful to make you own barcodes especially if you own your own business or your wanting to promote what you do or who you are, place a barcode on the back of your business card, in a shop window, use barcodes for making unique customer reference numbers etc.
